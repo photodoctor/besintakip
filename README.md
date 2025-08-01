@@ -1,3 +1,1 @@
-# besintakip# besintakip
-# besintakip
 # besintakip
